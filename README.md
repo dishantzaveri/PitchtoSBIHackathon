@@ -1,1 +1,17 @@
 # PitchtoSBIHackathon
+
+![2023-08-19T13_47_14 572Z-SBI_Sumission_Template (1)_Page_01](https://github.com/dishantzaveri/PitchtoSBIHackathon/assets/80118978/4ba8ce7f-c24a-45f2-8db3-9e96b9b940dd)
+![2023-08-19T13_47_14 572Z-SBI_Sumission_Template (1)_Page_02](https://github.com/dishantzaveri/PitchtoSBIHackathon/assets/80118978/234cefd7-5adc-4308-a8ae-0f8613680773)
+![2023-08-19T13_47_14 572Z-SBI_Sumission_Template (1)_Page_03](https://github.com/dishantzaveri/PitchtoSBIHackathon/assets/80118978/cf90eab1-cd46-4139-b028-021c8e27ed06)
+![2023-08-19T13_47_14 572Z-SBI_Sumission_Template (1)_Page_04](https://github.com/dishantzaveri/PitchtoSBIHackathon/assets/80118978/deb899f9-ee2c-4a4d-a7e0-c691702fa923)
+![2023-08-19T13_47_14 572Z-SBI_Sumission_Template (1)_Page_05](https://github.com/dishantzaveri/PitchtoSBIHackathon/assets/80118978/05f56fbc-25a0-4837-9e3f-c63c143d2df7)
+![2023-08-19T13_47_14 572Z-SBI_Sumission_Template (1)_Page_06](https://github.com/dishantzaveri/PitchtoSBIHackathon/assets/80118978/49db934a-f6f8-41e2-8287-ace6eb968a07)
+![2023-08-19T13_47_14 572Z-SBI_Sumission_Template (1)_Page_07](https://github.com/dishantzaveri/PitchtoSBIHackathon/assets/80118978/d4bc449c-9e49-4105-b0c4-98f4391c7fce)
+![2023-08-19T13_47_14 572Z-SBI_Sumission_Template (1)_Page_08](https://github.com/dishantzaveri/PitchtoSBIHackathon/assets/80118978/573ff12d-73c7-48ef-ad7f-5508d5824993)
+![2023-08-19T13_47_14 572Z-SBI_Sumission_Template (1)_Page_09](https://github.com/dishantzaveri/PitchtoSBIHackathon/assets/80118978/d373c849-afcf-4277-b6fc-9c6e62ede422)
+![2023-08-19T13_47_14 572Z-SBI_Sumission_Template (1)_Page_10](https://github.com/dishantzaveri/PitchtoSBIHackathon/assets/80118978/c43fd0cc-3994-4c51-8ab7-ad46df7e5cb7)
+![2023-08-19T13_47_14 572Z-SBI_Sumission_Template (1)_Page_11](https://github.com/dishantzaveri/PitchtoSBIHackathon/assets/80118978/b496fbf7-0d7d-4c47-8d7a-ad2bf6f4746f)
+![2023-08-19T13_47_14 572Z-SBI_Sumission_Template (1)_Page_12](https://github.com/dishantzaveri/PitchtoSBIHackathon/assets/80118978/0a187782-caab-43c3-8efb-eb634f946d51)
+![2023-08-19T13_47_14 572Z-SBI_Sumission_Template (1)_Page_13](https://github.com/dishantzaveri/PitchtoSBIHackathon/assets/80118978/6ed1ac75-1f87-4391-8950-1ca334638ce0)
+![2023-08-19T13_47_14 572Z-SBI_Sumission_Template (1)_Page_14](https://github.com/dishantzaveri/PitchtoSBIHackathon/assets/80118978/e27296b7-3671-4d3a-b4a5-aba4a82bcfb9)
+![2023-08-19T13_47_14 572Z-SBI_Sumission_Template (1)_Page_15](https://github.com/dishantzaveri/PitchtoSBIHackathon/assets/80118978/8b45f8ef-4932-4bf2-8db1-e4a100918e49)
